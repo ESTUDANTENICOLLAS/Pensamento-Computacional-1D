@@ -21,7 +21,7 @@ Trabalho de Pensamento Computacional
 
 "
 
-Veja mais em: https://brasilescola.uol.com.br/literatura/o-poema-caracteristicas-especificas.htm
+ Veja mais em: https://brasilescola.uol.com.br/literatura/o-poema-caracteristicas-especificas.htm
 
 
 
